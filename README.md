@@ -5,5 +5,3 @@ go follow my other fa🌈t accounts [@DIE-ANYWAY](https://github.com/DIE-ANYWAY)
 <img width="258" height="194" alt="image" src="https://github.com/user-attachments/assets/feaa842c-aaa8-4b4d-ab29-1768afd28e11" />
 
 aint nobody need this many githubs :sob:
-
-I will draw for robux btw ask me about it plsplsplsssss
