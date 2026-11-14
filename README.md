@@ -8,7 +8,8 @@
 
 **7**Teen : *9/20/2009*
 
-Not sure how to make things look good, I'm working on it tho and I'll add other info ig
+<img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/3716a25a-50b6-4c4b-bdbe-660fb5af18aa" />
+
 <details><summary>Info</summary> 
   
 **I** am unlabeled but still under the trans umbrella, gender and labels aren't really **MY** thing because I feel like I change too often
@@ -30,6 +31,8 @@ I prefer gender neutral or masculine terms though
 
   </details>
 
+
+
 <details><summary>Links</summary> 
 
 Main github [@DIE-ANYWAY](https://github.com/DIE-ANYWAY)
@@ -43,9 +46,7 @@ Atabook [☁️](https://itoshiling.atabook.org/)
 Artist of all the art in this github and strawpage [mulleddivinity](https://x.com/mulleddivinity?s=20)
 </details>
 
-
-<img width="1600" height="108" alt="image" src="https://github.com/user-attachments/assets/55c70f9c-3e81-4746-929a-74ab47f8bd39" />
-
+<img width="1600" height="108" alt="image" src="https://github.com/user-attachments/assets/e007581a-e0ee-4e90-b7d7-1e91b4cc1cdb" />
 
 
 <img width="255" height="180" alt="image" src="https://github.com/user-attachments/assets/68ca09b3-6467-4ca3-b0a5-1978b37bfd83" />
