@@ -18,7 +18,7 @@ I prefer gender neutral or masculine terms though
 
 **I** have ADHD and this does affect me a LOT
 
-**I** make jokes like kys/kms a lot, I can tone it down if asked
+**I** make kms a lot, I can tone it down if asked
 
 
 **I'm** pretty shy (Severe anxiety) but I match energy a lot if I feel up to it
