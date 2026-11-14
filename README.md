@@ -8,7 +8,7 @@
 
 Not sure how to make things look good, I'm working on it tho and I'll add other info ig
 <details>hi i am a wip purrr purrr~~~
-<summary>Info</summary> </details>
+<summary>Info</summary></details>
 
 
 
