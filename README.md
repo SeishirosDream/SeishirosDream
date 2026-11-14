@@ -13,7 +13,7 @@ Not sure how to make things look good, I'm working on it tho and I'll add byi an
 
 I love [mulleddivinity](https://x.com/mulleddivinity?s=20)'s art, all the art in this github/strawpage is by them
 
-go follow my other fa🌈t accounts [@DIE-ANYWAY](https://github.com/DIE-ANYWAY) [@Seasaed](https://github.com/Seasaed) [@Foofightuhs](https://github.com/Foofightuhs)
+go follow my other accounts [@DIE-ANYWAY](https://github.com/DIE-ANYWAY) [@Seasaed](https://github.com/Seasaed) [@Foofightuhs](https://github.com/Foofightuhs)
 
 <img width="255" height="180" alt="image" src="https://github.com/user-attachments/assets/68ca09b3-6467-4ca3-b0a5-1978b37bfd83" />
 
