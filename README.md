@@ -26,7 +26,7 @@ I prefer gender neutral or masculine terms though
 **C+H** and interacting is always okay unless I have any sort of dni in my name
 
 
-**Nine** times outta 10 I am afk on tiktok doomscrolling, doing my schoolwork, or playing roblox (online school, hehe...)
+**Nine** times outta ten I am afk on tiktok doomscrolling, doing my schoolwork, or playing roblox (online school, hehe...)
 
   </details>
 
