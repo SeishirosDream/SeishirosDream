@@ -6,9 +6,29 @@
 
 **D**reami : <ins>T</ins>hey/<ins>H</ins>e
 
+**7**Teen : *9/20/2009*
+
 Not sure how to make things look good, I'm working on it tho and I'll add other info ig
-<details>hi i am a wip purrr purrr~~~
-<summary>Info</summary></details>
+<details><summary>Info</summary> 
+  
+**I** am unlabeled but still under the trans umbrella, gender and labels aren't really **MY** thing because I feel like I change too often
+
+I prefer gender neutral or masculine terms though
+
+**I** have ADHD and this does affect me a LOT
+
+**I** make jokes like kys/kms a lot, I can tone it down if asked
+
+
+**I'm** pretty shy (Severe anxiety) but I match energy a lot if I feel up to it
+
+
+**C+H** and interacting is always okay unless I have any sort of dni in my name
+
+
+**Nine** times outta 10 I am afk on tiktok doomscrolling, doing my schoolwork, or playing roblox (online school, hehe...)
+
+  </details>
 
 
 
