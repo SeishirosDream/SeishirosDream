@@ -30,14 +30,21 @@ I prefer gender neutral or masculine terms though
 
   </details>
 
+<details><summary>Links</summary> 
+
+Main github [@DIE-ANYWAY](https://github.com/DIE-ANYWAY)
+
+Sae Github [@Seasaed](https://github.com/Seasaed)
+
+JJBA/FF github [@Foofightuhs](https://github.com/Foofightuhs)
+
+Artist of all the art in this github and strawpage [mulleddivinity](https://x.com/mulleddivinity?s=20)
+</details>
 
 
 <img width="1600" height="108" alt="image" src="https://github.com/user-attachments/assets/55c70f9c-3e81-4746-929a-74ab47f8bd39" />
 
 
-I love [mulleddivinity](https://x.com/mulleddivinity?s=20)'s art, all the art in this github/strawpage is by them
-
-go follow my other accounts [@DIE-ANYWAY](https://github.com/DIE-ANYWAY) [@Seasaed](https://github.com/Seasaed) [@Foofightuhs](https://github.com/Foofightuhs)
 
 <img width="255" height="180" alt="image" src="https://github.com/user-attachments/assets/68ca09b3-6467-4ca3-b0a5-1978b37bfd83" />
 
