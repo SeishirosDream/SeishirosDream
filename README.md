@@ -27,7 +27,7 @@ I prefer gender neutral or masculine terms though
 **C+H** and interacting is always okay (I love cuddling) unless I have any sort of dni in my name
 
 
-**Nine** times outta ten I am afk on tiktok doomscrolling, doing my schoolwork, or playing roblox (online school, hehe...)
+**Nine** times outta ten I am afk on tiktok doomscrolling, doing my schoolwork (online school, hehe...), or playing roblox
 
   </details>
 
@@ -49,7 +49,8 @@ Artist of all the art in this github and strawpage [mulleddivinity](https://x.co
 <img width="1600" height="108" alt="image" src="https://github.com/user-attachments/assets/e007581a-e0ee-4e90-b7d7-1e91b4cc1cdb" />
 
 
-<img width="220" height="220" alt="image" src="https://github.com/user-attachments/assets/97dc422d-67dc-47ee-a4c2-a794aad35c44" />
+<img width="220" height="220" alt="image" src="https://github.com/user-attachments/assets/10ffa8e8-836b-422c-ae34-fe2ef307b4e3" />
+
 
 
 
