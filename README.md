@@ -6,7 +6,7 @@
 
 **D**reami : <ins>T</ins>hey/<ins>H</ins>e
 
-Not sure how to make things look good, I'm working on it tho and I'll add byi and shtuff ig
+Not sure how to make things look good, I'm working on it tho and I'll add other info ig
 
 
 <img width="1600" height="108" alt="image" src="https://github.com/user-attachments/assets/55c70f9c-3e81-4746-929a-74ab47f8bd39" />
