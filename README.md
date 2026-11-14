@@ -54,7 +54,7 @@ Artist of all the art in this github and strawpage [mulleddivinity](https://x.co
 
 
 
-Bunnagi is real
+Bunnagi (not ship) is real
 
 <img width="1280"  alt="image" src="https://github.com/user-attachments/assets/2636a877-0277-4fc5-9a44-e19243520d25" />
 
