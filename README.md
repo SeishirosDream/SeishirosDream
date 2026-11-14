@@ -24,7 +24,7 @@ I prefer gender neutral or masculine terms though
 **I'm** pretty shy (Severe anxiety) but I match energy a lot if I feel up to it
 
 
-**C+H** and interacting is always okay unless I have any sort of dni in my name
+**C+H** and interacting is always okay (I love cuddling) unless I have any sort of dni in my name
 
 
 **Nine** times outta ten I am afk on tiktok doomscrolling, doing my schoolwork, or playing roblox (online school, hehe...)
@@ -49,10 +49,11 @@ Artist of all the art in this github and strawpage [mulleddivinity](https://x.co
 <img width="1600" height="108" alt="image" src="https://github.com/user-attachments/assets/e007581a-e0ee-4e90-b7d7-1e91b4cc1cdb" />
 
 
-<img width="255" height="180" alt="image" src="https://github.com/user-attachments/assets/68ca09b3-6467-4ca3-b0a5-1978b37bfd83" />
+<img width="220" height="220" alt="image" src="https://github.com/user-attachments/assets/97dc422d-67dc-47ee-a4c2-a794aad35c44" />
 
 
-aint nobody need this many githubs :sob:
 
-<img width="1280" height="175" alt="image" src="https://github.com/user-attachments/assets/f3df1591-2bc8-4433-8ad4-fa9c0f6a0ad1" />
+Bunnagi is real
+
+<img width="1280" height="175" alt="image" src="https://github.com/user-attachments/assets/2636a877-0277-4fc5-9a44-e19243520d25" />
 
