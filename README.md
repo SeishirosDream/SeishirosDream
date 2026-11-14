@@ -1,14 +1,14 @@
 <div align="center">
-<img width="1280" height="175" alt="image" src="https://github.com/user-attachments/assets/2636a877-0277-4fc5-9a44-e19243520d25" />
+<img width="1280"  alt="image" src="https://github.com/user-attachments/assets/2636a877-0277-4fc5-9a44-e19243520d25" />
 
 
-<img width="506" height="312" alt="image" src="https://github.com/user-attachments/assets/26860237-0993-4e16-8487-d27610243efd" />
+<img width="506"  alt="image" src="https://github.com/user-attachments/assets/26860237-0993-4e16-8487-d27610243efd" />
 
 **D**reami : <ins>T</ins>hey/<ins>H</ins>e
 
 **7**Teen : *9/20/2009*
 
-<img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/3716a25a-50b6-4c4b-bdbe-660fb5af18aa" />
+<img width="2048"  alt="image" src="https://github.com/user-attachments/assets/3716a25a-50b6-4c4b-bdbe-660fb5af18aa" />
 
 <details><summary>Info</summary> 
   
@@ -46,15 +46,15 @@ Atabook [☁️](https://itoshiling.atabook.org/)
 Artist of all the art in this github and strawpage [mulleddivinity](https://x.com/mulleddivinity?s=20)
 </details>
 
-<img width="1600" height="108" alt="image" src="https://github.com/user-attachments/assets/e007581a-e0ee-4e90-b7d7-1e91b4cc1cdb" />
+<img width="1600"  alt="image" src="https://github.com/user-attachments/assets/e007581a-e0ee-4e90-b7d7-1e91b4cc1cdb" />
 
 
-<img width="220" height="220" alt="image" src="https://github.com/user-attachments/assets/10ffa8e8-836b-422c-ae34-fe2ef307b4e3" />
+<img width="220"  alt="image" src="https://github.com/user-attachments/assets/10ffa8e8-836b-422c-ae34-fe2ef307b4e3" />
 
 
 
 
 Bunnagi is real
 
-<img width="1280" height="175" alt="image" src="https://github.com/user-attachments/assets/2636a877-0277-4fc5-9a44-e19243520d25" />
+<img width="1280"  alt="image" src="https://github.com/user-attachments/assets/2636a877-0277-4fc5-9a44-e19243520d25" />
 
