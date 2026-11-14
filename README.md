@@ -1,7 +1,4 @@
-<div align="center">
-<picture>
-  <source media="(prefers-color-scheme: dark)" srcset="path/to/logo-for-dark-mode.png">
-  <img alt="<img width="1280" height="175" alt="image" src="https://github.com/user-attachments/assets/2636a877-0277-4fc5-9a44-e19243520d25" />
+<img width="1280" height="175" alt="image" src="https://github.com/user-attachments/assets/2636a877-0277-4fc5-9a44-e19243520d25" />
 
 
 <img width="506" height="312" alt="image" src="https://github.com/user-attachments/assets/26860237-0993-4e16-8487-d27610243efd" />
