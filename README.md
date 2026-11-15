@@ -29,6 +29,10 @@ I prefer gender neutral or masculine terms though
 
 **Nine** times outta ten I am afk on tiktok doomscrolling, doing my schoolwork (online school, hehe...), or playing roblox
 
+
+**I** am an active member and staff in the regiment [AG:C](https://github.com/aeroguard-corp) (Aeroguard: Corps), feel free to ask me about it! Maybe join me too... O_O!!!
+
+
   </details>
 
 
