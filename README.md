@@ -33,6 +33,11 @@ I prefer gender neutral or masculine terms though
 **I** am an active member and staff in the regiment [AG:C](https://github.com/aeroguard-corp) (Aeroguard: Corps), feel free to ask me about it! Maybe join me too... O_O!!!
 
 
+**I'm** considered an emotional person, nonchalant isn't in my vocabulary...
+
+
+**I** have discord and am more talkative on there so if you want to be friends feel free to ask for it, although above where I said I'm shy that still applies until I start warming up... I love calling too as well ^_^
+
   </details>
 
 
