@@ -35,15 +35,15 @@ I prefer gender neutral or masculine terms though
 
 <details><summary>Links</summary> 
 
-Main github [@DIE-ANYWAY](https://github.com/DIE-ANYWAY)
+[Main Github](https://github.com/DIE-ANYWAY)
 
-Sae Github [@Seasaed](https://github.com/Seasaed)
+[Sae Github](https://github.com/Seasaed)
 
-JJBA/FF github [@Foofightuhs](https://github.com/Foofightuhs)
+[JJBA/FF Github](https://github.com/Foofightuhs)
 
-Atabook [☁️](https://itoshiling.atabook.org/)
+[Atabook ☁️](https://itoshiling.atabook.org/)
 
-Artist of all the art in this github and strawpage [mulleddivinity](https://x.com/mulleddivinity?s=20)
+[Artist of all the art in this github and strawpage](https://x.com/mulleddivinity?s=20)
 </details>
 
 <img width="1600"  alt="image" src="https://github.com/user-attachments/assets/e007581a-e0ee-4e90-b7d7-1e91b4cc1cdb" />
