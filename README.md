@@ -65,5 +65,10 @@ I prefer gender neutral or masculine terms though
 
 Bunnagi (not ship) is real
 
+<img width="256" alt="image" src="https://github.com/user-attachments/assets/0f1df786-f066-466f-91fc-a1ca7d962b36" />
+
+Nagi barrel
+
+
 <img width="1280"  alt="image" src="https://github.com/user-attachments/assets/2636a877-0277-4fc5-9a44-e19243520d25" />
 
