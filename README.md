@@ -16,7 +16,7 @@
 
 I prefer gender neutral or masculine terms though
 
-**I** have ADHD and this does affect me a LOT
+**I** have ADHD and this does affect me a LOT (unmedicated bcz the only meds we were able to get with insurance sucked ass for me, more cons than pros)
 
 **I** make kms jokes a lot, I can tone it down if asked
 
