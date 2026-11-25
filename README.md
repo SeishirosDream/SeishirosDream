@@ -68,7 +68,7 @@ Bunnagi (not ship) is real
 
 <details><summary>Honorable mentions</summary> 
 
-[R](https://github.com/Asphyxixate)uek , [K](https://github.com/russiall)im , [P](https://github.com/aIiendance)aige , [Z](https://github.com/witheringrosez)enny
+[Ruek](https://github.com/Asphyxixate) , [Kim](https://github.com/russiall) , [Paige](https://github.com/aIiendance) , [Lab specimen](https://github.com/witheringrosez)
 
 
 <img width="256" alt="image" src="https://github.com/user-attachments/assets/0f1df786-f066-466f-91fc-a1ca7d962b36" />
