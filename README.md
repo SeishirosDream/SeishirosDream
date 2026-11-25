@@ -65,9 +65,19 @@ I prefer gender neutral or masculine terms though
 
 Bunnagi (not ship) is real
 
+
+<details><summary>Honorable mentions</summary> 
+
+[R](https://github.com/Asphyxixate)uek , [K](https://github.com/russiall)im , [P](https://github.com/aIiendance)aige , [Z](https://github.com/witheringrosez)enny
+
+
 <img width="256" alt="image" src="https://github.com/user-attachments/assets/0f1df786-f066-466f-91fc-a1ca7d962b36" />
 
-Nagi barrel
+
+
+Nagi in a barrel too
+
+</details>
 
 
 <img width="1280"  alt="image" src="https://github.com/user-attachments/assets/2636a877-0277-4fc5-9a44-e19243520d25" />
