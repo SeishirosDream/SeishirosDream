@@ -70,6 +70,8 @@ Bunnagi (not ship) is real
 
 [Ruek](https://github.com/Asphyxixate) , [Kim](https://github.com/russiall) , [Paige](https://github.com/aIiendance) , [Lab specimen](https://github.com/witheringrosez)
 
+Lmk if you wanna be added
+
 
 <img width="256" alt="image" src="https://github.com/user-attachments/assets/0f1df786-f066-466f-91fc-a1ca7d962b36" />
 
