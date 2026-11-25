@@ -66,7 +66,7 @@ I prefer gender neutral or masculine terms though
 Bunnagi (not ship) is real
 
 
-<details><summary>Honorable mentions</summary> 
+<details><summary>Shoutouts to my very awesome friends</summary> 
 
 [Ruek](https://github.com/Asphyxixate) , [Kim](https://github.com/russiall) , [Paige](https://github.com/aIiendance) , [Lab specimen](https://github.com/witheringrosez)
 
